@@ -24,7 +24,7 @@ I'm a student at Kakatiya Institute of Technology and Science, pursuing a degree
 
 📧 Feel free to reach out to me via email: valipireddysathwika891@gmail.com
 
-🔗 Connect with me on [LinkedIn](www.linkedin.com/in/valipireddy-sathwika)
+🔗 Connect with me on [LinkedIn](https://www.linkedin.com/in/valipireddy-sathwika)
 
 ---
 
